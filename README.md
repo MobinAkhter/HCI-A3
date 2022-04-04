@@ -13,4 +13,4 @@
 
 ### Youtube Recording 1: https://youtu.be/bCTeGwLNJ5Y 
 
-### Youtube recording 2: 
+### Youtube recording 2: https://youtu.be/77Ig9NHIjqY
